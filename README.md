@@ -52,13 +52,11 @@ enquanto isso se paqueram
 
 Vivendo um novo ciclo 
 
-​
-54
-![Isso é uma imagem](https://geeta.com.br/a-simbologia-da-uniao-do-sol-e-da-lua/)
+
+![Isso é uma imagem](https://geeta.com.br/wp-content/uploads/2020/07/sol_lua.jpg)
 
 
 
-![Isso é uma imagem](https://aempreendedora.com.br/os-eternos-enamorados-a-paixao-do-sol-pela-lua/)
 
 
 .
