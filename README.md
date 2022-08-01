@@ -36,8 +36,7 @@ onde o sol é a lua se encontram,
 
 apaixonados e felizes 
 
-Aproveitam está união.
-
+Aproveitam está união.!
 Mesmo que dure tão pouco,
 
 Vale a pena matar a saudade
@@ -47,11 +46,19 @@ O sol e a lua se abraçam
 e se despedem sorridentes,
 
 aguardando um novo eclipse,
+58
 
 enquanto isso se paqueram
 
 Vivendo um novo ciclo 
 
-Natural da Vida.
+​
+54
+![Isso é uma imagem](https://geeta.com.br/a-simbologia-da-uniao-do-sol-e-da-lua/)
+
+
+
+![Isso é uma imagem](https://aempreendedora.com.br/os-eternos-enamorados-a-paixao-do-sol-pela-lua/)
+
 
 .
